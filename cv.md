@@ -2,7 +2,7 @@
 # Contact information:
 * **Address:** Omsk, Russia
 * **Phone:** +7 908 117 76 41
-* **Email:** chichevi@gmail.com , chichev_i@mail.ru
+* **Email:** chichevi1997@gmail.com , chichev_i@mail.ru
 * **GitHub:** [Ilias](https://github.com/IlyaOvechko)
 * **Telegram:** [Илья Шведов](https://t.me/IliasShvedov)
 # About me
